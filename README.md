@@ -1,1 +1,1 @@
-I am a Developer, becouse its the only think, that makes me happy.
+I am a Developer, becuse its the only think, that makes me happy.
